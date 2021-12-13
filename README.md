@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @VivienBrss
 - 👀 I’m interested in planes and horse riding.
-- 🌱 I’m currently learning to be a Military Air Trffic Controller.
+- 🌱 I’m currently learning to be a Military Air Traffic Controller.
